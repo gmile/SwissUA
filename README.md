@@ -27,10 +27,10 @@
 
 чат з інформацією про реєстрацію
 SEEP🇨🇭: допомога українцям 🇺🇦
-📲 [instagram seep ch](https://instagram.com/seep.ch)
-📞 +41 755 20 90 00
-📮 help@seep.ch
-✏️ [telegram seep_ch](https://t.me/seep_ch)
+* 📲 [instagram seep ch](https://instagram.com/seep.ch)
+* 📞 +41 755 20 90 00
+* 📮 help@seep.ch
+* ✏️ [telegram seep_ch](https://t.me/seep_ch)
 
 Відео роз'яснення та коментарі до закону про надання статусу захисту категорії S:
 [youtube](https://youtu.be/vBUzl9K_GdQ)
