@@ -67,6 +67,8 @@ SEEP🇨🇭: допомога українцям 🇺🇦
 
 [Осередок українців у Женеві](https://www.facebook.com/groups/1091252917571731/)
 
+[Switzerland with Ukraine](https://www.facebook.com/groups/529855118408513/)
+
 ### WhatsApp:
 
 [Допомога біженцям у Швейцарії](https://chat.whatsapp.com/F1f18mV9oDM35nuTiQTTAs)
