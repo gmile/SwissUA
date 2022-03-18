@@ -27,6 +27,7 @@
 
 чат з інформацією про реєстрацію
 SEEP🇨🇭: допомога українцям 🇺🇦
+
 📲 [instagram seep ch](https://instagram.com/seep.ch)
 📞 +41 755 20 90 00
 📮 help@seep.ch
@@ -93,6 +94,8 @@ SEEP🇨🇭: допомога українцям 🇺🇦
 [host4ukraine.com](https://www.host4ukraine.com/)
 
 [homesforukraine.eu](https://homesforukraine.eu/uk/home-ukr)
+
+[flatfox.ch](https://flatfox.ch/en/)
 
 Телеграм канал, житло у Цюриху: [zh_housing](https://t.me/zh_housing)
 
